@@ -1,3 +1,3 @@
 # References
 
-* My previous employer 
+* My previous employer
